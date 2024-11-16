@@ -26,7 +26,7 @@
   <img src="https://images2.imgbox.com/bd/d9/eF5GFj69_o.png" width="97px" height="57px" title="tbh">
 </p>
 
-hai <img src="[https://images2.imgbox.com/fa/19/vWhkPrPH_o.gif](https://images2.imgbox.com/7f/ad/e7f5WKbt_o.gif)" width="20px" height="20px"> im matty and im 16 uhhhhhj i just follow people around like a parasite and dress up as characters <br/>
+hai <img src="https://images2.imgbox.com/7f/ad/e7f5WKbt_o.gif" width="20px" height="20px"> im matty and im 16 uhhhhhj i just follow people around like a parasite and dress up as characters <br/>
 whisper if u need me to see your message cuz i dont pay a lot of attentiion to chat<br/>
 im like if a normal person played ponytown sometimes <br/>
 cuddle/hide/copy/etc is fine<br/>
