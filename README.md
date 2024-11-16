@@ -29,6 +29,6 @@
 hai <img src="https://images2.imgbox.com/7f/ad/e7f5WKbt_o.gif" width="20px" height="20px"> im matty and im 16 uhhhhhj i just follow people around like a parasite and dress up as characters <br/>
 whisper if u need me to see your message cuz i dont pay a lot of attention to chat<br/>
 im like if a normal person played ponytown sometimes <br/>
-cuddle/hide/copy/etc is fine <img src="https://images2.imgbox.com/8d/c0/pMsQyKO1_o.gif" width="20px" height="20px"/><br/>
+cuddle/hide/copy/etc is fine <img src="https://images2.imgbox.com/8d/c0/pMsQyKO1_o.gif" width="40px" height="20px"/><br/>
 
 <img src="https://media.tenor.com/x_3S5A6efeUAAAAM/he-cant-dink-it-he-cant-drink-it.gif">
