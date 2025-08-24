@@ -10,5 +10,5 @@
   go say hi to my brother <a href="https://github.com/destoncolonthree">sword</a> (his github is a bit outdated bless his heart), i sit with him a lot <br/> <br/>
 <ins><b>other links</b></ins> <br/>
     <a href="https://pronouns.cc/@coal">pronouns.cc</a>, <a href="https://www.last.fm/user/charitybarrel">last.fm</a>, <a href="https://powderkeg.site/">my personal website</a> <br/>
-    psst im coalfromantares on discord... you should add me
+    psst im prussianlover7 on discord... you should add me
 </p>
