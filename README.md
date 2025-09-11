@@ -7,7 +7,7 @@
   <a href="https://powderkeg.atabook.org/">atabook</a> messages are also appreciated <br/> <br/>
     im relatively asocial (yeah yeah i get it pt is a social game😢) and dry unless we're already familiar, bear with me lol <br/>
   dryness does not equate to me hating you 🙏 public service announcement because people have assumed this many a time <br/> <br/>
-  go say hi to my brother <a href="https://github.com/destoncolonthree">sword</a> (his github is a bit outdated bless his heart), i sit with him a lot <br/> <br/>
+  go say hi to my brother <a href="https://github.com/destoncolonthree">sword</a> (his github is outdated bless his heart), i sit with him a lot <br/> <br/>
 <ins><b>other links</b></ins> <br/>
     <a href="https://www.last.fm/user/charitybarrel">last.fm</a>, <a href="https://antlers.space">personal website</a> <br/>
     psst im charitybarrel on discord... you should add me
