@@ -3,10 +3,9 @@
 <p align="center"> 
     hi im mac or meds or whatever else you want to call me. 18, cornball introject, blah blah i dont have anything important to say. i play pt once every 3 months <br/>
     im usually sitting with friends or people watching. if i'm alone i'm probably afk, mb if i'm unresponsive. cuddle/hide/copy are all fine <br/> <br/>
-    i'm usually off-tab; please whisper me if you need to tell me anything because i won't see it otherwise :') <br/>
-  <a href="https://powderkeg.atabook.org/">atabook</a> messages are cool <br/> <br/>
-    im relatively asocial (yeah i get it pt is a social game😢) and dry unless we're already familiar mb <br/>
-  dryness does not equate to me hating you 🙏 public service announcement because people have assumed this many a time <br/> <br/>
+    i'm usually off-tab; please whisper me if you need to tell me anything because i won't see it otherwise :') <br/> <br/>
+    im asocial (yeah i get it pt is a social game) and dry unless we're already familiar, mb <br/> <br/>
+    
   go say hi to my bro <a href="https://github.com/destoncolonthree">sword</a> (her github is outdated bless her heart), i sit with her a lot <br/> <br/>
 <br/>
     psst im charitybarrel on discord... you should add me
