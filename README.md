@@ -5,6 +5,6 @@
     im usually sitting with friends or people watching. if i'm alone i'm probably afk, mb if i'm unresponsive. cuddle/hide/copy are all fine <br/> <br/>
     i'm usually off-tab; please whisper me if you need to tell me anything because i won't see it otherwise :') <br/> <br/>
     im asocial (yeah i get it pt is a social game) and dry unless we're already familiar, mb <br/> <br/> 
-  go say hi to my bro <a href="https://github.com/destoncolonthree">sword</a> (her github is outdated bless her heart), i sit with her a lot <br/> <br/>
+  go say hi to my bro <a href="https://github.com/swordphighting">sword</a>, i sit with her a lot <br/> <br/>
     psst im charitybarrel on discord... you should add me
 </p>
