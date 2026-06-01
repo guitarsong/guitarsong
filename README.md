@@ -2,7 +2,7 @@
 
 <p align="center"> 
     hi i'm mac or meds or whatever else you want to call me. 18, cornball introject, blah blah i don't have anything important to say. i play pt once every 3 months. i'm usually sitting with friends or people watching. <ins>if i'm alone i'm probably afk</ins>, sorry if i'm unresponsive. cuddle/hide/copy are all fine <br/> <br/>
-    i'm usually off-tab; please whisper me if you need to tell me anything because i won't see it otherwise :') <br/> <br/>
+    i'm usually off-tab; please whisper me if you need to tell me anything because i won't see it otherwise<br/> <br/>
     im asocial (yeah i get it pt is a social game) and dry unless we're already familiar, mb <br/> <br/> 
   go say hi to my bro <a href="https://github.com/swordphighting">sword</a>, i sit with her a lot <br/> <br/>
     psst im charitybarrel on discord... you should add me
